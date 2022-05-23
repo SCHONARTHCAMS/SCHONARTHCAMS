@@ -7,8 +7,3 @@
 - :zap: *Expectro Patronum*
 - :dog::heart:
 - :wave: *bye, bye!!*
-- 
-- 
-
-
-I got of the plain
